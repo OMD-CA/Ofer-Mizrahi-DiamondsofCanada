@@ -1,2 +1,2 @@
-# Ofer-Mizrahi-DiamondsofCanada
+# Ofer-Mizrahi-DiamondsofCanada/index.html
 Weekly list 
